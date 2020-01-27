@@ -1,2 +1,2 @@
 # Jayanth
-Studebt in KLU
+Student in KLU
